@@ -1,0 +1,1 @@
+Silahkan copy sesukamu ya
